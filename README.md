@@ -1,5 +1,5 @@
 - 👋 Hi, I’m a information system student 
-- I'm 21 years old
+- I'm 22 years old
 - I'm currently an infrastructure intern at Casio BR
 - I'm in the 6th semester of college
 - I graduate in june 2026
